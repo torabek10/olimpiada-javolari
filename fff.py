@@ -223,7 +223,7 @@ C SAVOLNING JAVOBI
 
 
 
-
+torabek jalsfja;sdfkjas;dfj asd;jfa
 
 
 
